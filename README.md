@@ -1,0 +1,1 @@
+# diziler-kullan-larak-sayilari-k-c-kten-b-y-ge-s-ralama
